@@ -15,6 +15,7 @@
 - e-mail: [sdzhaoyufei@stu.pku.edu.cn](sdzhaoyufei@stu.pku.edu.cn) and [sdzhaoyufei@126.com](sdzhaoyufei@126.com)
 - Bilibili: [江州司马平安否Macintosh](https://space.bilibili.com/380035309)
 - 知乎Zhihu: [江州司马平安否](https://www.zhihu.com/people/wo-men-du-shi-zhui-meng-ren-93-74)
+- WeChat Official Account: 江州司马平安否
 - QQ: 1636843624
 - Github(current site): [Macintosh-Yufei-Zhao](https://github.com/Macintosh-Yufei-Zhao)
 -----------

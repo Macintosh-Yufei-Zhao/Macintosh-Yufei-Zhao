@@ -8,7 +8,7 @@
 - Feel free to reach me by e-mail [sdzhaoyufei@stu.pku.edu.cn](sdzhaoyufei@stu.pku.edu.cn) or by WeChat *sdzhaoyufei2004*. The address is No. 5 Yiheyuan Road Haidian District, Beijing, P.R.China 100871.
 - Well, I am an ENTP-A debater, so I am happy to hear from you and (if possible) debate with you!
 - As a enthusiastic representative, I commit myself to undergrad freshman recruiting of PKU. Now I am the student leader of my district. I am really glad to share my experiences and stories to anyone who needs them.
-- To know more about me, see [my homepage](macintosh-yufei-zhao.github.io)
+- To know more about me, see [my homepage](https://macintosh-yufei-zhao.github.io)
 <!--- ⚡ Fun fact: ...--->
 -----------
 # Contact and Accounts
